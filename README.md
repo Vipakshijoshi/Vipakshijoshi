@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **vipakshijoshi826@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_oPlGczpUSUXcajP9swAHG5NrUAj1cda/view?usp=drive_link](https://drive.google.com/file/d/1_oPlGczpUSUXcajP9swAHG5NrUAj1cda/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1-yKkRj9YqDzIlHmtwko0f2UxYqXJuDX4/view?usp=drive_link](https://drive.google.com/file/d/1-yKkRj9YqDzIlHmtwko0f2UxYqXJuDX4/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
